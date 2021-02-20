@@ -1,0 +1,1 @@
+frenchfries is the oil food first we need cut the potato into cuboid and then we shoud pour the oil in the vessel and keep it in the gas stove and on it and leave for time and put the potato in the oil carefully  and after some time take it out carefully and the french fries is ready now 
